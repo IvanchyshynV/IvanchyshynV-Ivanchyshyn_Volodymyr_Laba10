@@ -1,1 +1,0 @@
-# IvanchyshynV-Ivanchyshyn_Volodymyr_Laba10
